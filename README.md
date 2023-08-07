@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Davydov Andrei (@Andrei8580)
+https://Andrei8580.github.io/rsschool-cv/cv
 
 
 
