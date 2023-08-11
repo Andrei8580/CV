@@ -1,3 +1,1 @@
-
-
-https://andrei8580.github.io/Andrei8580/
+https://andrei8580.github.io/CV/
